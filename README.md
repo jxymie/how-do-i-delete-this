@@ -10,24 +10,12 @@ if you ever want to talk to me just boop or whisper and ill always be down to ch
 
 ⋆⸜ 🎧✮ BYI
 
-↳ ❝ I am part of a system so my behaviour will change everyday but ill try to be friendly ¡! ❞
-
-↳ ❝ I hide any skins with age in their name ¡! ❞
-
-↳ ❝ I'm autistic so if you mention any of my special interests i might get a little over excited ¡! ❞
-
-↳ ❝ If theres too many people around i can get overwhelmed and will ask to move (pls respect this) ¡! ❞
-
-↳ ❝ If my skin's eyes are closed it means im afk/offtab! whisper me if you want me to come back ¡! ❞
+↳ ❝ I am part of a system so my behaviour will change everyday but ill try to be friendly ¡ I hide any skins with age in their name ¡ I'm autistic so if you mention any of my special interests i might get a little over excited ¡ If theres too many people around i can get overwhelmed and will ask to move (pls respect this) ¡ If my skin's eyes are closed it means im afk/offtab! whisper me if you want me to come back ¡! ❞
 
 
 ⋆⸜ 🎧✮ INT
 
-↳ ❝ Any of my shared interests ! (interests on third link) ¡! ❞
-
-↳ ❝ Other autistics ! lets bond over special interests (even if theyre not shared) ¡! ❞
-
-↳ ❝ Cuddle + Hide is perfectly okay unless i specify otherwise! but if im with a friend please ask ¡! ❞
+↳ ❝ Any of my shared interests ! (interests on third link) ¡ Other autistics ! lets bond over special interests (even if theyre not shared) ¡ Cuddle + Hide is perfectly okay unless i specify otherwise! but if im with a friend please ask ¡! ❞
 
 
 ⋆⸜ 🎧✮ DNI
