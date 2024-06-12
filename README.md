@@ -23,7 +23,7 @@ if you ever want to talk to me just boop or whisper and ill always be down to ch
 ↳ ❝ Honestly just DNI if youre under 13 or youre a piece of shit, other then that i dont really care ¡! ❞
 
 
-☁️⋅♡𓂃 1st link: my linktree for all my stuff (carrd, rentry and plural kit)
+☁️⋅♡𓂃 1st link: my linktree for all my stuff (carrd & pronouns page)
 
 ☁️⋅♡𓂃 2nd link: plural kit fronting website (to know what alter youre talking to)
 
