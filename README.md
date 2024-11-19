@@ -20,7 +20,7 @@ if you ever want to talk to me just boop or whisper and ill always be down to ch
 
 ⋆⸜ 🎧✮ DNI
 
-↳ ❝ Honestly just DNI if youre under 13 or youre a piece of shit, other then that i dont really care ¡! ❞
+↳ ❝ Honestly just DNI if youre under 16 or youre a piece of shit, other than that i dont really care ¡! ❞
 
 
 ☽｡⋆ Thanks for reading, have a great day pookies  ‧₊˚ ☁️⋅♡𓂃 ࣪ ִֶָ☾.
